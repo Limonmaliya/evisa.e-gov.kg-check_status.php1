@@ -1,0 +1,1 @@
+# https-www.evisa.e-gov.kg-check_status.php1
